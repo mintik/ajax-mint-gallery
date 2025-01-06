@@ -3,3 +3,16 @@ https://www.mintik.com/en/people-who-decided-to-stop-using-straws-what-was-the-f
 https://www.mintik.com/animals/dear-guinea-pig-owners-what-are-the-benefits-of-having-a-guinea-pig-and-what-is-the-best-size-of-a-cage-to-have-for-two-guinea-pigs.html
 https://www.mintik.com/category/biology
 https://www.mintik.com/category/culture
+https://www.mintik.com/category/sports
+https://www.mintik.com/category/en
+https://www.mintik.com/category/travel
+https://www.mintik.com/category/religions
+https://www.mintik.com/category/language
+https://www.mintik.com/category/chemistry
+https://www.mintik.com/category/computer
+https://www.mintik.com/category/economy
+https://www.mintik.com/category/how-to
+https://www.mintik.com/category/software
+https://www.mintik.com/category/technology
+https://www.mintik.com/category/history
+https://www.mintik.com/category/education
